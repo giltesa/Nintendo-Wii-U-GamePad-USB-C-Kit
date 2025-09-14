@@ -1,0 +1,4 @@
+![Nintendo-WIIU-GAMEPAD-USB-C-Kit](https://raw.githubusercontent.com/giltesa/Nintendo-Wii-U-GamePad-USB-C-Kit/master/4.%20Photos/Nintendo-Wii-U-GamePad-USB-C-v1.0_1.jpg)
+![Nintendo-WIIU-GAMEPAD-USB-C-Kit](https://raw.githubusercontent.com/giltesa/Nintendo-Wii-U-GamePad-USB-C-Kit/master/4.%20Photos/Nintendo-Wii-U-GamePad-USB-C-v1.0_2.jpg)
+![Nintendo-WIIU-GAMEPAD-USB-C-Kit](https://raw.githubusercontent.com/giltesa/Nintendo-Wii-U-GamePad-USB-C-Kit/master/4.%20Photos/Nintendo-Wii-U-GamePad-USB-C-v1.0_3.jpg)
+![Nintendo-WIIU-GAMEPAD-USB-C-Kit](https://raw.githubusercontent.com/giltesa/Nintendo-Wii-U-GamePad-USB-C-Kit/master/4.%20Photos/Nintendo-Wii-U-GamePad-USB-C-v1.0_4.jpg)
